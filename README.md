@@ -1,1 +1,1 @@
-ne nyisd meg
+Juhasz Patrik
